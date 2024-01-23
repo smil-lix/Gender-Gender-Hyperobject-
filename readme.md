@@ -1,4 +1,4 @@
-#Gender? Gender! Hyperobject!
+Gender? Gender! Hyperobject!
 
 Abstract 
 
