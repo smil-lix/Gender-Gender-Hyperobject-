@@ -27,11 +27,11 @@ The concept of gender performativity in combination with the fluidity of hyperob
 Some dimensions of how these little acts of non-conformance can look like can be witnessed in certain online spaces / communities. There some gendered terms are used decoupled from the gender they describe, and more often then not are used to describe a certain aesthetic or sometimes a feeling, such terms could be ‘femboy’ or ‘babygirl’. If fans like a certain aesthetic of a person or character they may be saying things such as ‘ohhh new gender (envy) just dropped’. Indubitably, it is obvious to everyone that a person and/or their style can’t be a gender. Rather this should be understood as a way to express admiration, while simultaneously finding that certain person / character attractive and being kind of envious of their looks. 
 Looking at gender through the lens of hyperobject philosophy may not have helped to create clarity, but it has definitely helped to feel more confident in being uncertain. Considering everything, I think it is good to view gender as a hyperobject, even if it results in a feeling of being overwhelmed. There is no clear cut answer to explain gender and there shouldn’t be one. It just gets more chaotic the deeper you dive into thinking about gender and that’s okay. Honestly I believe chaos is the strong point of hyperobjects. I advocate for more chaos, more genders, a bolder expression of identity. It has to get so confusing, no simple one-way answer seems reasonable anymore. 
 
-Biblography
+Biblography 
 Butler, J. (1990). Gender trouble: Feminism and the subversion of identity. Routledge.
 Morton, T. (2013). Hyperobjects: Philosophy and Ecology after the End of the World. University of Minnesota Press.
 World Health Organization: WHO (2019) Gender. https://www.who.int/health-topics/gender#tab=tab_1. (accessed on 20.01.2024)  
 
-Images
+Images 
 All Images in the Zine are hashtags and captions from Tumblr all rights belong to the creators (accessed on 21.01.2014)
 
