@@ -1,6 +1,6 @@
 # Gender? Gender! Hyperobject!
 
-#####  Abstract 
+#### Abstract 
 Gender is confusing! Have you ever tried to define gender for yourself? How far have you come? If I think about what makes me a woman I never have a clear answer. Is it my body? No! My Ability to bear children? Eww no! Is it because I am so empathic? I probably am but that’s not a criteria I would use to define me as a woman…  I could go on like this for ages. In the end there is nothing that makes me say “ Ohh this is why I am a woman” with certainty. My strongest evidence is that it does not feel wrong to say “I am a woman” but that does not seem very convincing even to me.
 I thought maybe seeing gender from a different angle, will offer some clarity. So what’s better than to look at gender through the lens of hyperobjects, since hyperobjects are at least just as confusing to me as gender, if not more. But it is this confusion, in which there lies some sort of liberation. 
 Following this logic it seems like a good idea to intertwine hyperobjects and gender… But before we dive straight into this chaos of ‘Hyperobject x Gender’ let’s first introduce the concept of hyperobjects.
@@ -9,7 +9,7 @@ What are hyperobjects? Hyperobjects are entities. Entities, which we cannot see 
 Looking closer we are ought to realize that a lot of the qualities of what makes a hyperobject, a hyperobject, can be found in the conceptualization of gender. That’s what I want to focus on.
 I am positive, if we understand gender as a hyperobject, this gives us new ways to think about gender, a margin for maneuvering gender expression and possibly even helps to deconstruct the prevailing gender dichotomy. Let’s Fetz! 
 
-######  Short Essay 
+#### Short Essay 
 Timothy Morton is a philosopher and fierce advocate of Object Oriented Ontology (OOO). According to OOO everything is an object, first and foremost existing by itself, the idea of humans as a subject is rejected. Morton introduced the concept of hyperobjects as a way to talk about objects that are Hyper  in their relation to other objects. They are so massively distributed in time and space, that it is impossible to fully grasp them, humbling us in the process, even more so forcing us to re-think our core ideas of existence and what it means to live in a society. (Morton, 2013) It is fair to say: “Hyperobjects have already had a significant impact on human social and psychic space”. (Morton, 2013. p. 2)  
 Before I go into detail on how gender is a hyperobject, let’s take a quick look at the definition of gender. The WHO defines gender as follows: “Gender refers to the characteristics of women, men, girls and boys that are socially constructed.  This includes norms, behaviors and roles associated with being a woman, man, girl or boy, as well as relationships with each other. As a social construct, gender varies from society to society and can change over time.” ((World Health Organization: WHO, 2019)) 
 Disclaimer: When I am talking about gender in this context, I especially mean the hegemonic gender dichotomy. 
